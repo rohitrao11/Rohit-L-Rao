@@ -1,2 +1,2 @@
 # Rohit-L-Rao
-## NIT Tiruchirappalli
+## NIT Trichy
